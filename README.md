@@ -8,4 +8,4 @@ I recently started to learn more about blockchain, DeFi, DApps and all the Ether
 
 I'm looking to collaborate on any fun and interesting project about Web3.
 
-📫 How to reach me: this is my [Twitter](https://twitter.com/wic97)!
+📫 How to reach me: [Twitter](https://twitter.com/wic97), [Linkedin](https://www.linkedin.com/in/adrianpaez), [Codersrank](https://profile.codersrank.io/user/stdevadrianpaez)
